@@ -1,4 +1,4 @@
-### Hi there 👋
+### Hello. The account you are looking for has either been deactivated or deleted.
 ![](https://komarev.com/ghpvc/?username=UserIDUndefined&color=orange&style=plastic)
 
 <!--
